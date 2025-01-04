@@ -11,7 +11,13 @@ that are bound to happen in this Yuga. Therefore, it's important for an individu
 <br>
 Now comes the question, how is it known that mere worshipping and chanting help us ease the survival in KaliYuga? It was known by the preachings of two great saints called 
 "GAURA" and "NITAI".
+<br>
+<hr>
+<br>
 <img width="775" alt="image" src="https://github.com/user-attachments/assets/c84ff5a2-3805-459f-993a-f558ed4aa412" />
+<br>
+<hr>
+<br>
 <br>
 <br>
 The story of Gaura-Nitai (also referred to as Gornitai) is rooted in the rich tradition of Gaudiya Vaishnavism and revolves around two key figures: 
