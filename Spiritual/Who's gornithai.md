@@ -1,4 +1,4 @@
-People who are new to krishna's community and societies like ISKCON might wonder who are they? called "GORNITHAI"!
++People who are new to krishna's community and societies like ISKCON might wonder who are they? called "GORNITHAI"!
 Yes! you read it right! It's the word "are" and not "is". 
 Although, we address as a single name "GORNITHAI", what actually meant is "GAURA and NITAI"!
 <br>
