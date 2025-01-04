@@ -16,6 +16,7 @@ Now comes the question, how is it known that mere worshipping and chanting help 
 The story of Gaura-Nitai (also referred to as Gornitai) is rooted in the rich tradition of Gaudiya Vaishnavism and revolves around two key figures: 
 Sri Chaitanya Mahaprabhu (Gaura) and Sri Nityananda Prabhu (Nitai). Their lives and teachings aimed to revive bhakti (devotional love) for Lord Krishna 
 during the 15th and 16th centuries in Bengal and neighboring regions.
+
 <br>
 <hr>
 <br>
@@ -41,6 +42,7 @@ He traveled extensively across India, spreading the message of unconditional lov
 
 <b>Divine Identity:</b>
 Chaitanya is considered a combined incarnation of Radha and Krishna. He embodies Krishna's essence and Radha's devotion, making him unique among avatars.
+
 <br>
 <hr>
 <br>
